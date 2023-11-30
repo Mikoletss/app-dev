@@ -32,3 +32,8 @@ WandaVision is a unique and innovative television series produced by Marvel Stud
 2. **Sitcom Parodies:** Each episode pays homage to different sitcom eras
 3. **Westview:** The fictional town where Wanda's alternate reality is created
 4. **Theories and Easter Eggs:** Abundant references hinting at the broader MCU
+
+Quotes
+> **"What is grief, if not love persevering?" - Vision**
+
+**WandaVision** breaks the traditional superhero storytelling mold, experimenting with various genres and formats, while delving into complex themes of grief, identity, and power, making it an intriguing addition to the Marvel Cinematic Universe.
